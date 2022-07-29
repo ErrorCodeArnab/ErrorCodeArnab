@@ -14,9 +14,9 @@
 
 - 📫 How to reach me: **arnab.errorcode2021@gmail.com**
 
-- 📄 Know about my experiences: Click on my [**Resume**](https://drive.google.com/file/d/1Pgw5ew11EklDnRKX2kqWu60L4CumGLar/view?usp=sharing)
+- 📄 Know about my experiences: Click on my ➡️➡️ [**Resume**](https://drive.google.com/file/d/1Pgw5ew11EklDnRKX2kqWu60L4CumGLar/view?usp=sharing)
 
-- ⚡ Fun fact **I can solve Rubik's Cube**
+- ⚡ Fun fact: **I can solve ❤️Rubik's Cube❤️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
